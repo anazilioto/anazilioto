@@ -1,6 +1,5 @@
 oi né🤟🏼
-<!--
-**anazilioto/anazilioto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 
 - desempregada🤟🏼
@@ -12,4 +11,3 @@ oi né🤟🏼
 - pronomes: di/va😜
 - ⚡ 
 
--->
