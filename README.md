@@ -11,3 +11,5 @@ oi né🤟🏼
 - pronomes: di/va😜
 - ⚡ 
 
+![](https://media1.tenor.com/m/Br-Yk8pwmW0AAAAd/camila-loures-clt.gif)
+![](https://media1.tenor.com/m/z4ZXWc5YRRwAAAAd/dog-funny.gif)
